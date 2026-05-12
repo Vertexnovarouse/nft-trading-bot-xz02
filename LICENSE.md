@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft trading bot with nft trading bot rare Bot - NFT-sniping and stop-loss. Featuring NFT-sniping and stop-loss, it's the best choice for automated NFT trading.
 
 
 
